@@ -1,4 +1,4 @@
-#  
+#  adopt me Script smart offers the most advanced adopt me Script, with no clip and auto-heal. Perfect for dominating any match.
 
 
 
